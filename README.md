@@ -1,1 +1,0 @@
-# dusan_study
